@@ -6,7 +6,7 @@
 
 
 
-- 💬 Ask me about **https://drive.google.com/drive/u/0/recent.**
+
 
 - 📫 How to reach me **taani.yaduvanshi05@gmail.com**
 
